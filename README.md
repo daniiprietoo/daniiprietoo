@@ -6,7 +6,7 @@ Computer Science Student at Lander University
 
 🚀 Excited to learn and grow as a developer!
 
-* 🌍  I'm based in Greenwood, SC
+* 🌍  I'm based in A Coruña, Spain
 
 
 ### Skills
